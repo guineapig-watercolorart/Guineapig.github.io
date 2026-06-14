@@ -13,7 +13,7 @@
 ## Hawthron （12” x 16”）
 *May 2026*  
 <br>
-<img src="Hawthorn_May2026.JPG" width="500">
+<img src="Practice - Hawthorn_May2026.JPG" width="500">
 
 ## Riverside （12” x 16”）
 *APR 2026*  
