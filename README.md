@@ -1,4 +1,25 @@
 # My Watercolor Artwork
+
+## Practice - Objects （12” x 12”）
+*June 2026*  
+<br>
+<img src="Vase_june2026.JPG" width="500">
+
+## Practice - Objects （12” x 12”）
+*May 2026*  
+<br>
+<img src="Objects_May2026.JPG" width="500">
+
+## Hawthron （12” x 16”）
+*May 2026*  
+<br>
+<img src="Hawthorn_May2026.JPG" width="500">
+
+## Riverside （12” x 16”）
+*APR 2026*  
+<br>
+<img src="Riverside_April2026.JPG" width="500">
+
 ## Snow Peak （12” x 16”）
 *APR 2026*  
 <br>
