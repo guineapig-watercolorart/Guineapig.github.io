@@ -1,4 +1,13 @@
 # My Watercolor Artwork
+## Early Summer （12” x 16”）
+*June 2026*  
+<br>
+<img src="Early summer_june2026.JPG" width="500">
+
+## Film （12” x 16”）
+*June 2026*  
+<br>
+<img src="film_june2026.jpg" width="500">
 
 ## Practice - Objects （12” x 12”）
 *June 2026*  
