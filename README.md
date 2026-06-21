@@ -19,7 +19,7 @@
 <br>
 <img src="Objects_May2026.JPG" width="500">
 
-## Hawthron （12” x 16”）
+## Practice - Objects（12” x 16”）
 *May 2026*  
 <br>
 <img src="Practice - Hawthorn_May2026.JPG" width="500">
