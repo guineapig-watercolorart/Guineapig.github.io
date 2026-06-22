@@ -1,4 +1,10 @@
 # My Watercolor Artwork
+## Winter Day （12” x 16”）
+*June 2026*  
+<br>
+<img src="Winterday_june2026.jpg" width="500">
+
+
 ## Early Summer （12” x 16”）
 *June 2026*  
 <br>
